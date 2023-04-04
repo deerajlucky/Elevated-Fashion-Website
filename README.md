@@ -2,7 +2,7 @@
 
 Project Link : https://kind-bush-00edaa700.3.azurestaticapps.net/
 
-Demo Video : 
+Demo Video : https://drive.google.com/file/d/1-MQTEwwX6XnYWB1C9GgoWvppgRpEyJFd/view?usp=sharing
 
 _______________________________________________________________________________________________________________________________________________________________________
 
